@@ -1,6 +1,6 @@
 ![](JotaGarciaz.gif)
 # Hi there 👋🏻
-Someone will say that if you reach to read until here then you will read until the end.
+Someone would say that if you have reached to read until here then you will  read until the end.
 
 ## Fun fact
 
