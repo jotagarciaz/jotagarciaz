@@ -1,10 +1,12 @@
 ![](JotaGarciaz.gif)
 # Hi there 👋🏻
-Someone would say that if you have reached to read until here then you will  read until the end.
+
+One could say that if you have read until here then you will read until the end.
+
 
 ## Fun fact
 
-A fun fact about me is that I've being living int this places for **at least 10 months**:
+A fun fact about me is that **I've being living in these places for at least 10 months each**:
 
 ### Spain 🇪🇸:
 
